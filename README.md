@@ -7,3 +7,4 @@
 - After falling in love 💓 with coding, I accepted the challenge to change my profession after 11 years of marketing and PR to bring my understanding of inspiring storytelling and modern design to the creation of outstanding digital experiences.
 - ⚡ Fun fact: I was born in Italy but I'm not able to cook a decent Pizza 🍕!
 
+
